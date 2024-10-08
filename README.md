@@ -1,4 +1,4 @@
-# Hello everyone! My name is BaCat8. I love games and programming. I don't like errors in the code.
+# Hello everyone! My name is BaCat8. Love games and programming. Don't like errors in the code.
 ***
 ###### Telegram: [t.me/Ba_Cat8](https://t.me/Ba_Cat8)
 ###### Steam: [steamcommunity.com/id/BaCat8/](https://steamcommunity.com/id/BaCat8/)
